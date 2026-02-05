@@ -1,5 +1,4 @@
 once a upon a time it was such an evil night
 And im so scared right now
 Im cold, sad, wet, lonely, sad, wet, scared, terror filled, and in agony
-My heart was beating a million times outside my chest when i sawMy heart was beating a million times outside my chest when i saw
 My heart was beating a million times outside my chest when i saw
